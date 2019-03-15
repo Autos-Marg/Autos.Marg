@@ -1,2 +1,2 @@
 # Autos.Marg
-Prometor de Ventas Chevrolet
+Promotor de Ventas Chevrolet
